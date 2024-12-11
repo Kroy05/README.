@@ -12,7 +12,7 @@ h1 align="center">Hi 👋, I'm kajal kumari</h1>
 
 - 📫 How to reach me **Kroy52724@gmail.com**
 
-- ⚡ Fun fact **I'm an introvert**
+- ⚡ Fun fact **I'm a tenacious**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
